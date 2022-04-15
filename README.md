@@ -1,0 +1,5 @@
+- 👋 Oi, eu sou @xSp3eed
+- 👀 Estou interessado em: Aprender mais e dividir meu conhecimento!
+- 🌱 Estou aprendendo: PHP
+- 💞️ Estou procurando colaborar: Com toda comunidade.
+- 📫 Como chegar até mim: Discord! xSpeed#5812
